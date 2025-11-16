@@ -1,0 +1,1 @@
+# TIQC-internship-week1-wasay1
